@@ -1,5 +1,6 @@
 
-![4646544_Cover](https://github.com/user-attachments/assets/58d83116-276b-40e9-b059-4dce187e4bd2)
+![4654542_ep10_lily_lewd8](https://github.com/user-attachments/assets/c4efd1b2-8f57-4151-8011-02d86eb11850)
+
 
 <p align="center">
   <a href="https://github.com/gameworldx1/Being-a-DIK-new-Update/releases/tag/Lastversion">
